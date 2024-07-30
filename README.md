@@ -1,2 +1,0 @@
-# Ridham.in
-My Portfolio
